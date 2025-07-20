@@ -1,4 +1,3 @@
-# khushbu2025
 <h1 align="left">Hi 👋! My name is Khushbu Birhade </h1>
 
 ###
